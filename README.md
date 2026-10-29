@@ -1,5 +1,5 @@
 ## Hi there 👋
-welcome to the rep0 chump!
+welcome to the profile chump!
 
 Nothin too interesting here
 
